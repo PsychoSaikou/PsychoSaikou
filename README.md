@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PsychoSaikou
-- 👀 I’m interested in ... Dental medicine
+- 👀 I’m interested in ... Dentistry
 - 🌱 I’m currently learning ... Basic Highschool knowledge
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...Nothing :)
 - 📫 How to reach me ...
 
 <!---
